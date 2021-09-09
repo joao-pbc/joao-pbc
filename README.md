@@ -2,7 +2,7 @@
 
 **joao-pbc/joao-pbc**
 
-instagram.com/joao.bove/
+https://instagram.com/joao.bove/
 
 <!--
 
